@@ -1,0 +1,2 @@
+# politicas
+host para tiktok
